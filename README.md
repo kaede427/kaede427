@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kaede427
+- 👀 I’m interested in anime, kpop, jpop, Vocaloid and arts
+- 🌱 I’m currently learning Python, HTML, C++ and Java 
+- 😄 Pronouns: she/her
